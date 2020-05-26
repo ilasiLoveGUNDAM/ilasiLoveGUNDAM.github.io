@@ -1,1 +1,0 @@
-# ilasiLoveGUNDAM.github.io
